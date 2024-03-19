@@ -8,7 +8,9 @@
 
 时代在呼唤变革，云队友让您的事业不再受局限。快来加入我们，掀起远程工作的新篇章，一起创造未来的传奇！放眼未来，尽在云队友！
 
-https://cnshimages.oss-cn-shanghai.aliyuncs.com/iShot_2024-03-19_22.43.13.png
+详情查看 
+https://cnshimages.oss-cn-shanghai.aliyuncs.com/iShot_2024-03-19_22.07.50.png
+https://cnshimages.oss-cn-shanghai.aliyuncs.com/iShot_2024-03-19_22.06.22.png
 
 https://www.duiyou360.com/?utm_source=user11
 
